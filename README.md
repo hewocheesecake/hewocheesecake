@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hewocheesecake
+- 👀 I’m interested in computer scincce and engineering 
+- 🌱 I’m currently learning pyton
+- 💞️ I’m looking to collaborate on any project
+- 📫 You reach me via discord at lowland streaked tenrec#8833
