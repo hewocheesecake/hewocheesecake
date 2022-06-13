@@ -2,4 +2,4 @@
 - 👀 I’m interested in computer scincce and engineering 
 - 🌱 I’m currently learning pyton
 - 💞️ I’m looking to collaborate on any project
-- 📫 You reach me via discord at lowland streaked tenrec#8833
+- 📫 You reach me via discord at tenrec#8833
